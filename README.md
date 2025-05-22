@@ -1,1 +1,1 @@
-# Awards
+# Industry Certificates
